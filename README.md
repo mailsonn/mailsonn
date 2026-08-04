@@ -4,9 +4,8 @@
 
 ✔️ Cursando Análise e Desenvolvimento de Sistemas
 
-✔️ Graduado em ciências naturais  
-
-✔️ Espero contribuir muito ao passo em que vou aprendendo 🔥...    
+✔️ Atuo na infraestrutura de TI
+  
 
 
 
